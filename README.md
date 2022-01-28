@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Lucinator14
+- 👀 I’m interested in video games
+- 🌱 I’m currently learning to mod games with game banana and crap
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me @Lucinator_14 on twitter
