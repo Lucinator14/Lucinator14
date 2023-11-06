@@ -1,5 +1,7 @@
-- 👋 Hi, I’m @Lucinator14
-- 👀 I’m interested in video games
-- 🌱 I’m currently learning to mod games with game banana and crap
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me @Lucinator_14 on twitter
+hey gang
+
+Ethnicity: 🇵🇭  
+Pursiuing Carrer: Voice Actor
+Current Interests: Valorant, DMC, UMvC3, SF6, Genshin, Honkai Star Rail
+Relationship Preference: Bisexual/Heteromatic
+Current Status: my back hurt :(
