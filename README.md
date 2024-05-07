@@ -8,4 +8,4 @@ Current Interests: Valorant, DMC, UMvC3, SF6, Genshin, Honkai Star Rail
 
 Relationship Preference: Bisexual/Heteromatic
 
-Current Status: my back hurt :(
+Current Status: i'm sad :(
